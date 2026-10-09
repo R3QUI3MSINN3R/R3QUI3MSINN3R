@@ -26,11 +26,13 @@
  <div align= "center">
 @theultimatekohamster - certified cheese hater
  <div align= "center">
+@wynhniie - daughter with questionable interests
+ <div align= "center">
 @NikaMokochi - the ultimate shipper
  <div align= "center">
 @zackingaround - cooks INSANE skins
  <div align= "center">
-honorable mentions to those who don't have Github - you're all amazing friends
+honorable mention to those who don't have Github - you're all amazing friends
 </details> 
 
 
