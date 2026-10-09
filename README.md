@@ -18,17 +18,17 @@
   </summary>
 </p>
  <div align= "center">
-@D3V0TION my devoted partner <3
+@D3V0TION - my devoted partner <3
  <div align= "center">
-@Lily2Love an Andrew serial collector
+@Lily2Love - an Andrew serial collector
  <div align= "center">
-@SillyNonbinary the SILLIEST of 'em all
+@SillyNonbinary - the SILLIEST of 'em all
  <div align= "center">
-@theultimatekohamster certified cheese hater
+@theultimatekohamster - certified cheese hater
  <div align= "center">
-@NikaMokochi the ultimate shipper
+@NikaMokochi - the ultimate shipper
  <div align= "center">
-@zackingaround cooks INSANE skins
+@zackingaround - cooks INSANE skins
 </details> 
 
 
