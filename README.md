@@ -29,6 +29,8 @@
 @NikaMokochi - the ultimate shipper
  <div align= "center">
 @zackingaround - cooks INSANE skins
+ <div align= "center">
+honorable mentions to those who don't have Github - you're all amazing friends
 </details> 
 
 
