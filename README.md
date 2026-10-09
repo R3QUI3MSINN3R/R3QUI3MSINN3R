@@ -34,6 +34,8 @@
   </summary>
 </p>
 <div align= "center">
+ᴍᴏʀᴇ ɪɴ ᴍʏ ꜱᴏᴄɪᴀʟꜱ !
+<div align= "center">
 <img width="500" alt="Pizza Guy" src="https://github.com/user-attachments/assets/4b9fe30b-b6a3-49e8-af0e-a0f1bb0a61b7" />
 <img height="355" alt="Make_A_Name_For_Yourself" src="https://github.com/user-attachments/assets/f3cb5ef2-fe47-4398-a45f-793779ce2dfe" />
 <img height="355" alt="And_The_Seraphim_Wept" src="https://github.com/user-attachments/assets/7895371e-314f-4e3f-805c-d8120bfe1e51" />
