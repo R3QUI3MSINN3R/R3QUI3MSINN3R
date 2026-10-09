@@ -14,6 +14,27 @@
 <div align="center">
 <details>
   <summary>
+    $${\color{#c30010}\textbf{cool people}}$$
+  </summary>
+</p>
+ <div align= "center">
+@D3V0TION my devoted partner <3
+ <div align= "center">
+@Lily2Love an Andrew serial collector
+ <div align= "center">
+@SillyNonbinary the SILLIEST of 'em all
+ <div align= "center">
+@theultimatekohamster certified cheese hater
+ <div align= "center">
+@NikaMokochi the ultimate shipper
+ <div align= "center">
+@zackingaround cooks INSANE skins
+</details> 
+
+
+<div align="center">
+<details>
+  <summary>
     $${\color{#c30010}\textbf{nominations}}$$
   </summary>
 </p>
