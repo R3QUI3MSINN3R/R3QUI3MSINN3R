@@ -83,5 +83,5 @@ proshipper or stuff like that
  <div align= "center">
 if you're looking for a partner
  <div align= "center">
-void fictionkins, non-sharing yumeshippers and toxic stuff like that. They're fictional characters open to public. It's pathetic. Grow up.
+void fictionkins, non-sharing yumeshippers and toxic stuff like that - they're fictional characters open to public. It's pathetic. Grow up.
 </details> 
