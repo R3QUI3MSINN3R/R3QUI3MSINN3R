@@ -79,8 +79,6 @@ honorable mention to those who don't have Github - you're all amazing friends
  <div align= "center">
 basic DNI 
  <div align= "center">
-proshipper or stuff like that
- <div align= "center">
 if you're looking for a partner
  <div align= "center">
 void fictionkins, non-sharing yumeshippers, "doubles DNI" and toxic stuff like that - they're fictional characters open to public. It's pathetic. Grow up.
