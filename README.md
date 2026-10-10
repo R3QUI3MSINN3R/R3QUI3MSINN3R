@@ -26,7 +26,7 @@
  <div align= "center">
 @theultimatekohamster - certified cheese hater
  <div align= "center">
-@wynhniie - daughter with questionable interests
+@wynhniie - Kaeya's fiance... apparently
  <div align= "center">
 @NikaMokochi - the ultimate shipper
  <div align= "center">
