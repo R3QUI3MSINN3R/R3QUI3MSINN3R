@@ -69,3 +69,19 @@ honorable mention to those who don't have Github - you're all amazing friends
 <img width="350" alt="Untitled_Artwork" src="https://github.com/user-attachments/assets/70aafe41-ad12-4c36-8026-a77ff53a262b" />
 
 </details> 
+
+<div align="center">
+<details>
+  <summary>
+    $${\color{#c30010}\textbf{DNI}}$$
+  </summary>
+</p>
+ <div align= "center">
+basic DNI 
+ <div align= "center">
+proshipper or stuff like that
+ <div align= "center">
+if you're looking for a partner
+ <div align= "center">
+void fictionkins, non-sharing yumeshippers and toxic stuff like that. They're fictional characters open to public. It's pathetic. Grow up.
+</details> 
