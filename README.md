@@ -46,11 +46,16 @@ honorable mention to those who don't have Github - you're all amazing friends
 </p>
 <div align= "center">
 <img width="490"" alt="Screenshot 2026-10-09 233319" src="https://github.com/user-attachments/assets/bdd5ac6a-3329-474b-9ff4-af9bb63a6675" /> 
-<p align="center">  @ᵖᵗ-ˢʰⁱᵖ-ⁿᵒᵐⁱⁿᵃᵗⁱᵒⁿˢ
+<p align="center">  @pt_ship_nominations 
 
 <p align="center"> 
 <img width="300"" alt="Screenshot 2026-10-09 233336" src="https://github.com/user-attachments/assets/c38b18e7-7142-486b-a016-390d224bb00e" />
-<p align="center"> @ᵈᵃᵍᵍᵉʳˢᵗʳᵘᶜᵏᵐᵃᵍᵉ
+<p align="center"> @daggerstruckmage
+
+<p align="center"> 
+<img width="390" height="28" alt="Screenshot 2026-10-14 212038" src="https://github.com/user-attachments/assets/a04451e6-0fe2-48cf-8ebd-77fa919fa75f" />
+<p align="center"> @pt-fashion
+  
 </details>
 
 
