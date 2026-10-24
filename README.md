@@ -20,19 +20,21 @@
  <div align= "center">
 @D3V0TION - my devoted partner <3
  <div align= "center">
-@Lily2Love - an Andrew serial collector
+@Lily2Love - THE Andrew serial collector
  <div align= "center">
-@SillyNonbinary - the SILLIEST of 'em all
+@SillyNonbinary - the TWIN
  <div align= "center">
-@theultimatekohamster - certified cheese hater
+@theultimatekohamster - the certified cheese hater
  <div align= "center">
-@wynhniie - Kaeya's fiance... apparently
+@wynhniie - the Kaeya's fiance... apparently
  <div align= "center">
 @NikaMokochi - the ultimate shipper
  <div align= "center">
-@zackingaround - cooks INSANE skins
+@zackingaround - the au lore yapper
  <div align= "center">
-@SONNELLINOENTHUSIAST - Mafioso with the biggest aura
+@SONNELLINOENTHUSIAST - the mafioSON (because I adopted him)
+ <div align= "center">
+@lovingl3tters - the most admirable mafialings animator
  <div align= "center">
 honorable mention to those who don't have Github - you're all amazing friends
 </details> 
