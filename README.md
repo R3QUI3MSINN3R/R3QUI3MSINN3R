@@ -88,5 +88,5 @@ basic DNI
  <div align= "center">
 if you're looking for a partner
  <div align= "center">
-void fictionkins, non-sharing yumeshippers, "doubles DNI" and toxic stuff like that - they're fictional characters open to public. It's pathetic. Grow up.
+if you yumeship with the character I'm currently using - just don't treat me as your f/o, it makes me uncomfortable
 </details> 
