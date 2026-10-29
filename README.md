@@ -24,7 +24,7 @@
  <div align= "center">
 @SillyNonbinary - the TWIN
  <div align= "center">
-@theultimatekohamster - the certified cheese hater
+@theultimatekohamster - GREEDIEST person alive
  <div align= "center">
 @wynhniie - the Kaeya's fiance... apparently
  <div align= "center">
