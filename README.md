@@ -20,7 +20,7 @@
  <div align= "center">
 @D3V0TION - my devoted partner <3
  <div align= "center">
-@Lily2Love - THE Andrew serial collector
+@Lily2Love - bunlily
  <div align= "center">
 @SillyNonbinary - the TWIN
  <div align= "center">
@@ -47,6 +47,7 @@ honorable mention to those who don't have Github - you're all amazing friends
   </summary>
 </p>
 <div align= "center">
+<p align="center"> thank you for nominating me as Pizza Guy !
 <p align="center">  @pt_ship_nominations @daggerstruckmage @pt-fashion  @THE-TEMPIST
 
   
