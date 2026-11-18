@@ -11,6 +11,18 @@
   <p align="center">
 ɪᴛᴀ / ᴇɴɢ - 20 ʏᴏ
 
+<p align="center">
+  $${\Large\color{#c30010}\textbf{WARNING}}$$ 
+<p align="center">
+This player is copying people's skins, they often have "cudcomf" in their name and tends to get closer to whoever they want to copy.
+I got my Pizza Guy (from my own AU) copied, my partner got their wolf Ivan's concept stolen and I have proof of them copying other people.
+<p align="center">
+  <img width="94" height="105" alt="MF" src="https://github.com/user-attachments/assets/000849a1-8bef-4b4f-b0ad-46af32b555fb" />
+<p align="center">
+Often under the lake next to bakery. Be aware.
+
+
+
 <div align="center">
 <details>
   <summary>
