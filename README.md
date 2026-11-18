@@ -11,24 +11,21 @@
   <p align="center">
 ɪᴛᴀ / ᴇɴɢ - 20 ʏᴏ
 <p align="center">
-uhhh I draw stuff and I like videogames, I'm planning to become a game developer.
+ɪ ᴅʀᴀᴡ ꜱᴛᴜꜰꜰ ᴀɴᴅ ɪ ʟɪᴋᴇ ᴠɪᴅᴇᴏɢᴀᴍᴇꜱ, ɪ'ᴍ ᴘʟᴀɴɴɪɴɢ ᴛᴏ ʙᴇᴄᴏᴍᴇ ᴀ ɢᴀᴍᴇ ᴅᴇᴠᴇʟᴏᴘᴇʀ.
 
 <p align="center">
   $${\color{#c30010}\textbf{interests??}}$$ 
 <p align="center">
-I tend to periodically change my hyperfixations but the longest-lived ones are: Pizza Game - Ultrakill - horses
+ɪ ᴛᴇɴᴅ ᴛᴏ ᴘᴇʀɪᴏᴅɪᴄᴀʟʟʏ ᴄʜᴀɴɢᴇ ᴍʏ ʜʏᴘᴇʀꜰɪxᴀᴛɪᴏɴꜱ ʙᴜᴛ ᴛʜᴇ ʟᴏɴɢᴇꜱᴛ-ʟɪᴠᴇᴅ ᴏɴᴇꜱ ᴀʀᴇ: ᴘɪᴢᴢᴀ ɢᴀᴍᴇ - ᴜʟᴛʀᴀᴋɪʟʟ - ʜᴏʀꜱᴇꜱ
 
 <p align="center">
   $${\Large\color{#c30010}\textbf{WARNING}}$$ 
 <p align="center">
-This player is copying people's skins, they often have "cudcomf" in their name and tends to get closer to whoever they want to copy.
-I got my Pizza Guy (from my own AU) copied, my partner got their wolf Ivan's concept stolen and I have proof of them copying other people.
+ᴛʜɪꜱ ᴘʟᴀʏᴇʀ ɪꜱ ᴄᴏᴘʏɪɴɢ ᴘᴇᴏᴘʟᴇ'ꜱ ꜱᴋɪɴꜱ, ᴛʜᴇʏ ᴏꜰᴛᴇɴ ʜᴀᴠᴇ "ᴄᴜᴅᴄᴏᴍꜰ" ɪɴ ᴛʜᴇɪʀ ɴᴀᴍᴇ ᴀɴᴅ ᴛᴇɴᴅꜱ ᴛᴏ ɢᴇᴛ ᴄʟᴏꜱᴇʀ ᴛᴏ ᴡʜᴏᴇᴠᴇʀ ᴛʜᴇʏ ᴡᴀɴᴛ ᴛᴏ ᴄᴏᴘʏ. ɪ ɢᴏᴛ ᴍʏ ᴘɪᴢᴢᴀ ɢᴜʏ (ꜰʀᴏᴍ ᴍʏ ᴏᴡɴ ᴀᴜ) ᴄᴏᴘɪᴇᴅ, ᴍʏ ᴘᴀʀᴛɴᴇʀ ɢᴏᴛ ᴛʜᴇɪʀ ᴡᴏʟꜰ ɪᴠᴀɴ'ꜱ ᴄᴏɴᴄᴇᴘᴛ ꜱᴛᴏʟᴇɴ ᴀɴᴅ ɪ ʜᴀᴠᴇ ᴘʀᴏᴏꜰ ᴏꜰ ᴛʜᴇᴍ ᴄᴏᴘʏɪɴɢ ᴏᴛʜᴇʀ ᴘᴇᴏᴘʟᴇ.
 <p align="center">
   <img width="94" height="105" alt="MF" src="https://github.com/user-attachments/assets/000849a1-8bef-4b4f-b0ad-46af32b555fb" />
 <p align="center">
-Often under the lake next to bakery. Be aware.
-
-
+​🇴​​🇫​​🇹​​🇪​​🇳​ ​🇺​​🇳​​🇩​​🇪​​🇷​ ​🇹​​🇭​​🇪​ ​🇱​​🇦​​🇰​​🇪​ ​🇳​​🇪​​🇽​​🇹​ ​🇹​​🇴​ ​🇧​​🇦​​🇰​​🇪​​🇷​​🇾​. ​🇧​​🇪​ ​🇦​​🇼​​🇦​​🇷​​🇪​.
 
 <div align="center">
 <details>
