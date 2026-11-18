@@ -10,6 +10,13 @@
 Ｌ ｌ ｏ ｙ ｄ  ／  Ｔ ａ ｐ ｐ ａ
   <p align="center">
 ɪᴛᴀ / ᴇɴɢ - 20 ʏᴏ
+<p align="center">
+uhhh I draw stuff and I like videogames, I'm planning to become a game developer.
+
+<p align="center">
+  $${\color{#c30010}\textbf{interests??}}$$ 
+<p align="center">
+I tend to periodically change my hyperfixations but the longest-lived ones are: Pizza Game - Ultrakill - horses
 
 <p align="center">
   $${\Large\color{#c30010}\textbf{WARNING}}$$ 
