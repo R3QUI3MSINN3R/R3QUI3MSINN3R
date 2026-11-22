@@ -44,8 +44,6 @@
  <div align= "center">
 @wynhniie - the Kaeya's fiance... apparently
  <div align= "center">
-@NikaMokochi - the ultimate shipper
- <div align= "center">
 @zackingaround - the au lore yapper
  <div align= "center">
 @SONNELLINOENTHUSIAST - the mafioSON (because I adopted him)
