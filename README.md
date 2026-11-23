@@ -62,8 +62,18 @@ honorable mention to those who don't have Github - you're all amazing friends
 </p>
 <div align= "center">
 <p align="center"> thank you for nominating me as Pizza Guy !
-<p align="center">  @pt_ship_nominations @daggerstruckmage @pt-fashion  @THE-TEMPIST
-<div align= "center"> <img width="425" height="22" alt="Screenshot 2026-11-23 220014" src="https://github.com/user-attachments/assets/f57eedb9-71ee-4d09-a28b-195213e4ae4b" />
+<p align="center">  @pt_ship_nominations
+  
+ <div align= "center"><img width="289" height="22" alt="Screenshot 2026-11-23 221044" src="https://github.com/user-attachments/assets/14e357f4-5fd3-46d1-9da3-d61d8f5ba046" />
+<div align= "center"> @daggerstruckmage 
+  
+ <div align= "center"><img width="383" height="19" alt="Screenshot 2026-11-23 220850" src="https://github.com/user-attachments/assets/6a4b4a2b-62c3-4785-bc21-44ac1a526fee" />
+<div align= "center"> @pt-fashion 
+  
+ <div align= "center"><img width="441" height="20" alt="Screenshot 2026-11-23 220707" src="https://github.com/user-attachments/assets/66e8b694-7297-42a2-9868-ac87288ccb3b" />
+<div align= "center"> @THE-TEMPIST
+  
+ <div align= "center"><img width="425" height="22" alt="Screenshot 2026-11-23 220014" src="https://github.com/user-attachments/assets/f57eedb9-71ee-4d09-a28b-195213e4ae4b" />
 <div align= "center"> @pony-town-nominations
 
   
