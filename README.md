@@ -63,6 +63,8 @@ honorable mention to those who don't have Github - you're all amazing friends
 <div align= "center">
 <p align="center"> thank you for nominating me as Pizza Guy !
 <p align="center">  @pt_ship_nominations @daggerstruckmage @pt-fashion  @THE-TEMPIST
+<div align= "center"> <img width="425" height="22" alt="Screenshot 2026-11-23 220014" src="https://github.com/user-attachments/assets/f57eedb9-71ee-4d09-a28b-195213e4ae4b" />
+<div align= "center"> @pony-town-nominations
 
   
 </details>
