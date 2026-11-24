@@ -89,11 +89,11 @@
   </summary>
 </p>
  <div align= "center">
-basic DNI 
+ʙᴀꜱɪᴄ ᴅɴɪ
  <div align= "center">
-under 18 (unless friends)
+ᴜɴᴅᴇʀ 18 (ᴜɴʟᴇꜱꜱ ꜰʀɪᴇɴᴅꜱ)
  <div align= "center">
-if you're looking for a partner
+ɪꜰ ʏᴏᴜ'ʀᴇ ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴀ ᴘᴀʀᴛɴᴇʀ
  <div align= "center">
-if you yumeship with the character I'm currently using - just don't treat me as your f/o, it makes me uncomfortable
+ɪꜰ ʏᴏᴜ ʏᴜᴍᴇꜱʜɪᴘ ᴡɪᴛʜ ᴛʜᴇ ᴄʜᴀʀᴀᴄᴛᴇʀ ɪ'ᴍ ᴄᴜʀʀᴇɴᴛʟʏ ᴜꜱɪɴɢ - ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ᴛʀᴇᴀᴛ ᴍᴇ ᴀꜱ ʏᴏᴜʀ ꜰ/ᴏ, ɪᴛ ᴍᴀᴋᴇꜱ ᴍᴇ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ
 </details> 
