@@ -105,6 +105,8 @@ honorable mention to those who don't have Github - you're all amazing friends
  <div align= "center">
 basic DNI 
  <div align= "center">
+under 18 (unless friends)
+ <div align= "center">
 if you're looking for a partner
  <div align= "center">
 if you yumeship with the character I'm currently using - just don't treat me as your f/o, it makes me uncomfortable
