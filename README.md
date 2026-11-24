@@ -34,23 +34,9 @@
   </summary>
 </p>
  <div align= "center">
-@D3V0TION - my devoted partner <3
- <div align= "center">
-@Lily2Love - bunlily
- <div align= "center">
-@SillyNonbinary - the TWIN
- <div align= "center">
-@theultimatekohamster - GREEDIEST person alive
- <div align= "center">
-@wynhniie - the Kaeya's fiance... apparently
- <div align= "center">
-@zackingaround - the au lore yapper
- <div align= "center">
-@SONNELLINOENTHUSIAST - the mafioSON (because I adopted him)
- <div align= "center">
-@lovingl3tters - the most admirable mafialings animator
- <div align= "center">
-honorable mention to those who don't have Github - you're all amazing friends
+@ᴅ3ᴠ0ᴛɪᴏɴ @ᴛʜᴇᴜʟᴛɪᴍᴀᴛᴇᴋᴏʜᴀᴍꜱᴛᴇʀ @ꜰʟᴏᴡᴇʀꜱᴀɴ02 @ʟɪʟʏ2ʟᴏᴠᴇ @ꜱɪʟʟʏɴᴏɴʙɪɴᴀʀʏ  @ᴡʏɴʜɴɪɪᴇ @ᴢᴀᴄᴋɪɴɢᴀʀᴏᴜɴᴅ  @ꜱᴏɴɴᴇʟʟɪɴᴏᴇɴᴛʜᴜꜱɪᴀꜱᴛ @ʟᴏᴠɪɴɢʟ3ᴛᴛᴇʀꜱ @ʟᴜɴᴀʀꜱᴀʀɪᴀ
+<div align= "center">
+  ʜᴏɴᴏʀᴀʙʟᴇ ᴍᴇɴᴛɪᴏɴ ᴛᴏ ᴛʜᴏꜱᴇ ᴡʜᴏ ᴅᴏɴ'ᴛ ʜᴀᴠᴇ ɢɪᴛʜᴜʙ - ʏᴏᴜ'ʀᴇ ᴀʟʟ ᴀᴍᴀᴢɪɴɢ ꜰʀɪᴇɴᴅꜱ
 </details> 
 
 
